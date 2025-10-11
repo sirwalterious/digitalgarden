@@ -4,3 +4,5 @@
 
 
 Here we go!  Testing 123
+
+[[writings/church/Mid-Week Meditations/Lessons From Charlie Kirk\|Lessons From Charlie Kirk]]
