@@ -5,4 +5,4 @@
 
 ## Writings
 
-[[public/writings/Lessons From Charlie Kirk\|Lessons From Charlie Kirk]]
+[[writings/articles/Lessons From Charlie Kirk\|Lessons From Charlie Kirk]]
