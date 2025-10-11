@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/site/home/","tags":["gardenEntry"]}
 ---
 
-
 # 👋 Hi There! 
 
 My name is Walter. 

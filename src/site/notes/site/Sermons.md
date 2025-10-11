@@ -6,6 +6,7 @@
 
 ## 2025
 
+* [[sermons/2025/By Means of Death\|By Means of Death]]
 * [[sermons/2025/Angels vs the Son\|Angels vs the Son]]
 * [[sermons/2025/Baptism - An Overview\|Baptism - An Overview]]
 * [[sermons/2025/Courage Emmanuel - Reprise\|Courage Emmanuel - Reprise]]
