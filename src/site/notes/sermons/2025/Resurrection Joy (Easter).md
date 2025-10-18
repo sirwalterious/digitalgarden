@@ -3,6 +3,8 @@
 ---
 
 
+<iframe src="https://drive.google.com/file/d/1jpasl6AmukS2zcm5qSfx9BijiBTBUZpi/preview" width="640" height="100" allow="autoplay"></iframe>
+
 ![Pasted image 20250419210516.png](/img/user/admin/assets/Pasted%20image%2020250419210516.png)
 
 > [!bible] John 16:16-22

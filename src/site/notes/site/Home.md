@@ -14,4 +14,4 @@ I'm a [growing leader](https://www.linkedin.com/in/waltermwillis/) in the softwa
 
 ## Sermons
 
-[[site/Sermons\|Sermon Notes]] from preaching opportunities, organized by year. 
+[[site/Sermons\|Sermon notes]] from preaching opportunities, organized by year. 

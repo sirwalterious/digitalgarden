@@ -3,6 +3,8 @@
 ---
 
 
+<iframe src="https://drive.google.com/file/d/18IX3008w8wuUiK1vw3A9u3j1x_48mpVR/preview" width="640" height="100" allow="autoplay"></iframe>
+
 > [!bible] Hebrews 3:1-6 
 > (1) Therefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our confession, Christ Jesus, (2) who was faithful to Him who appointed Him, as Moses also [was faithful] in all His house. (3) For this One has been counted worthy of more glory than Moses, inasmuch as He who built the house has more honor than the house. (4) For every house is built by someone, but He who built all things [is] God. (5) And Moses indeed [was] faithful in all His house as a servant, for a testimony of those things which would be spoken [afterward], (6) but Christ as a Son over His own house, whose house we are if we hold fast the confidence and the rejoicing of the hope firm to the end.
 

@@ -3,6 +3,8 @@
 ---
 
 
+<iframe src="https://drive.google.com/file/d/1TrdRx_fwpeQuEE4uw2q0LRHpYXfVE_Vp/preview" width="640" height="100" allow="autoplay"></iframe>
+
 ![Pasted image 20250510111933.png](/img/user/admin/assets/Pasted%20image%2020250510111933.png)
 ## Thesis
 

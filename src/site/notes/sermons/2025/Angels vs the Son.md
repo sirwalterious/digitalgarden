@@ -3,6 +3,7 @@
 ---
 
 
+<iframe src="https://drive.google.com/file/d/1EayxZXHqus39j9SSlWUi35gLbQgPqY4X/preview" width="640" height="100" allow="autoplay"></iframe>
 
 > [!bible] Hebrews 1:6-12
 > (6) But when He again brings the firstborn into the world, He says: "Let all the angels of God worship Him." (7) And of the angels He says: "Who makes His angels spirits And His ministers a flame of fire." (8) But to the Son [He says]: "Your throne, O God, [is] forever and ever; A scepter of righteousness [is] the scepter of Your kingdom. (9) You have loved righteousness and hated lawlessness; Therefore God, Your God, has anointed You With the oil of gladness more than Your companions." (10) And: "You, LORD, in the beginning laid the foundation of the earth, And the heavens are the work of Your hands. (11) They will perish, but You remain; And they will all grow old like a garment; (12) Like a cloak You will fold them up, And they will be changed. But You are the same, And Your years will not fail."
