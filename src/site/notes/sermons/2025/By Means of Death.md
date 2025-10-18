@@ -2,7 +2,8 @@
 {"dg-publish":true,"permalink":"/sermons/2025/by-means-of-death/"}
 ---
 
-![[2025-10-12 - Hebrews 9 15-22 By Means of Death - Pastor Walter Willis.mp3]]
+
+<iframe src="https://drive.google.com/file/d/1yMA00_IT16RkbeOT5ujAfaUyuwg7w6zy/preview" width="640" height="100" allow="autoplay"></iframe>
 
 ![Pasted image 20251011141633.png](/img/user/admin/assets/Pasted%20image%2020251011141633.png)
 
