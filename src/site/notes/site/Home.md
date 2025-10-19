@@ -6,11 +6,12 @@
 
 My name is Walter. 
 
-I'm a [growing leader](https://www.linkedin.com/in/waltermwillis/) in the software, web, and digital space, working for a global manufacturing company. I'm a Christian bi-vocational pastor and worship leader, happily serving along with a plurality of pastors in [my local church](https://www.windsorchristian.com/). Most importantly, I'm a husband of 10 years and father to 4 incredible little blessings.
+I'm a [growing leader](https://www.linkedin.com/in/waltermwillis/) in the software, web, and digital space, working for a global manufacturing company. I'm a Christian bi-vocational pastor and worship leader, happily serving along with a plurality of pastors in [my local church](https://www.windsorchristian.com/). Most importantly, I'm a husband of 10 years and father to 4 incredible little blessings (with another one on the way).
 
 ## Writings
 
-[[writings/articles/Lessons From Charlie Kirk\|Lessons From Charlie Kirk]]
+2025-10-19 - [[writings/articles/Green Tomatoes\|Green Tomatoes]]
+2025-10-05 - [[writings/articles/Lessons From Charlie Kirk\|Lessons From Charlie Kirk]]
 
 ## Sermons
 
