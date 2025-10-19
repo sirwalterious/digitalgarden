@@ -1,9 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/writings/articles/lessons-from-charlie-kirk/"}
+{"dg-publish":true,"permalink":"/writings/articles/lessons-from-charlie-kirk/","created":"2025-09-26"}
 ---
 
-
-_September 26, 2025_
 
 ![Pasted image 20250926172520.png](/img/user/admin/assets/Pasted%20image%2020250926172520.png)
 

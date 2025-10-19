@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/writings/articles/green-tomatoes/"}
+{"dg-publish":true,"permalink":"/writings/articles/green-tomatoes/","created":"2025-10-19"}
 ---
 
 

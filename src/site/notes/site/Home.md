@@ -11,7 +11,7 @@ I'm a [growing leader](https://www.linkedin.com/in/waltermwillis/) in the softwa
 ## Writings
 
 2025-10-19 - [[writings/articles/Green Tomatoes\|Green Tomatoes]]
-2025-10-05 - [[writings/articles/Lessons From Charlie Kirk\|Lessons From Charlie Kirk]]
+2025-09-26 - [[writings/articles/Lessons From Charlie Kirk\|Lessons From Charlie Kirk]]
 
 ## Sermons
 
