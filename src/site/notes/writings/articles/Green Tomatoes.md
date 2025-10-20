@@ -51,7 +51,7 @@ The destiny of every believer resurrection and eternal life. It is not a matter 
 
 ## Of the Same Quality
 
-The second thing that "Christ the firstfruits" shows us is that our resurrection will be **of the same quality** as Christ's. Those first sweet, red, juicy tomatoes tell us what the quality of the harvest will be. The other tomatoes will be like the firstfruits - times a thousand. 
+The second thing that "Christ the firstfruits" shows us is that our resurrection will be **of the same quality** as Christ's. Those first sweet, red, juicy tomatoes tell us what the quality of the harvest will be. The other tomatoes will be like the firstfruits - just a lot more of them! 
 
 Thus the Christian looks forward to a resurrection that is nothing less in quality than the resurrection of Jesus Christ.  As Christ rose to die no more, so we will rise to die no more. As Christ demonstrated that he has a resurrected physical body by eating and drinking, so we will have physical bodies and eat and drink. As Christ's physical body is no longer afflicted by the effects of sin (disease, suffering, affliction, etc), so our physical bodies will be free from the effects of sin. 
 
@@ -62,5 +62,5 @@ Thus the Christian looks forward to a resurrection that is nothing less in quali
 
 I pray that my children would continue to understand with ever increasing depth and delight the truth of Christ the firstfruits. It is our strength when we feel weak.  It is our hope when we are faced with despair. It is our joy when the brokenness of this present life invades our home and leaves its painful marks. And it is our anchor when we lie on our deathbeds and breathe our last breath. 
 
-It's good thing to be a green tomato. 
+It's a good thing to be a green tomato. 
 

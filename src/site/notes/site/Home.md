@@ -2,11 +2,13 @@
 {"dg-publish":true,"permalink":"/site/home/","tags":["gardenEntry"]}
 ---
 
-# 👋 Hi There! 
+# Hi There! 👋
 
 My name is Walter. 
 
-I'm a [growing leader](https://www.linkedin.com/in/waltermwillis/) in the software, web, and digital space, working for a global manufacturing company. I'm a Christian bi-vocational pastor and worship leader, happily serving along with a plurality of pastors in [my local church](https://www.windsorchristian.com/). Most importantly, I'm a husband of 10 years and father to 4 incredible little blessings (with another one on the way).
+I'm a [leader](https://www.linkedin.com/in/waltermwillis/) in the software, web, and digital space, working for a global manufacturing company. I'm a Christian bi-vocational pastor and worship leader, happily serving along with a plurality of pastors in [my local church](https://www.windsorchristian.com/). 
+
+Most importantly, I'm a husband of 10 years and father to 4 incredible little blessings (with another one on the way).
 
 ## Writings
 
