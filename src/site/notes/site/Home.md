@@ -10,7 +10,7 @@ I'm a [leader](https://www.linkedin.com/in/waltermwillis/) in the software, web,
 
 More importantly, I'm husband to the most amazing woman in the world and father to four incredible kiddos (with another one on the way).
 
-![Pasted image 20251024131121.png](/img/user/admin/assets/Pasted%20image%2020251024131121.png)
+![Pasted image 20251024131121.png|400](/img/user/admin/assets/Pasted%20image%2020251024131121.png)
 ## Writings
 
 2025-10-19 - [[writings/articles/Green Tomatoes\|Green Tomatoes]]
