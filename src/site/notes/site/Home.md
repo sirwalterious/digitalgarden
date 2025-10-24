@@ -8,7 +8,7 @@ My name is Walter.
 
 I'm a [leader](https://www.linkedin.com/in/waltermwillis/) in the software, web, and digital space, working for a global manufacturing company. I'm a Christian bi-vocational pastor and worship leader, happily serving along with a plurality of pastors in [my local church](https://www.windsorchristian.com/). 
 
-Most importantly, I'm a husband of 10 years and father to 4 incredible little blessings (with another one on the way).
+More importantly, I'm husband to the [[Pasted image 20251024131121.png|most amazing woman in the world]] and father to [[Pasted image 20251024131516.png|4 incredible kiddos]] (with another one on the way).
 
 ## Writings
 
