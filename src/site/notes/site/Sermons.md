@@ -3,6 +3,9 @@
 ---
 
 
+## 2026
+
+* [[sermons/2026/You Have Come to Mount Zion\|You Have Come to Mount Zion]]
 
 ## 2025
 
